@@ -1,1 +1,1 @@
-# sandormarcell-hu
+# sandormarcell.hu
